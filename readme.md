@@ -1,0 +1,3 @@
+Red velvet cake has an acidic taste that comes from the use of buttermilk and vinegar as well as the cream cheese in the frosting. The acidity is balanced out by the sweetness of the cake itself. It also has cocoa powder added to it for a mild chocolate flavoring.
+Red velvet cake is traditionally a red, red-brown, crimson or scarlet-colored chocolate layer cake, layered with ermine icing. Traditional recipes do not use food coloring, with the red color due to non-Dutched, anthocyanin-rich cocoa. Common ingredients include buttermilk, butter, cocoa, vinegar, and flour. 
+- NavishAggarwal.pro.whitehatjr
